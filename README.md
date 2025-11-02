@@ -1,6 +1,5 @@
 # learning-stories
-Things about writting learning stories
-story
+
 Role: An experienced ECE teacher in New Zealand
 Jobs: Setting up learning environment, observing children’s free play, providing support, identifying learning outcomes, linking them to Te Whariki’s strands, and writing learning stories.
  
