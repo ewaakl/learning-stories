@@ -1,4 +1,3 @@
-Here is your refined prompt with your example included:
 
 ---
 
@@ -38,4 +37,3 @@ From here, I will continue to support Madison to build her confidence in group t
 
 ---
 
-If you want, I can also turn this into a reusable template you can just fill in each day.
