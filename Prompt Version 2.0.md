@@ -33,13 +33,15 @@ Soon, other children gather around her. They watch closely and show excitement. 
 
 Florence shows patience as she supports her friends. She watches them try and gives them encouragement. She is kind and positive, and her friends feel safe to give it a go. Florence looks very happy and proud as she helps others learn. She shows a strong sense of confidence and leadership.
 
-During outdoor play, Florence often chooses to spend time on the grass area where the gym mats are set up. This is a space she feels confident in, and she enjoys showing her gymnastics skills here.
+**Learning Outcomes**
 
-Florence practises her cartwheels with strong and careful movements. She places her hands down firmly and swings her legs over smoothly. She repeats this many times and looks proud of what she can do.
+Through this experience, Florence is learning to share her skills and help others learn. She is using her words and actions to show her friends how to do cartwheels, and she gives them support and encouragement as they try. This links to the Communication strand of Te Whariki, as she is expressing her ideas and helping others understand.
 
-Soon, other children gather around her. They watch closely and show excitement. Some of them say they want to try too. Florence smiles and is happy to help. She shows them step by step how she does her cartwheels. She uses simple words and clear actions to guide them.
+Florence is also building her physical skills as she practises her cartwheels again and again. She is gaining control of her body and trying new challenges with confidence. This links to the Exploration strand, where children learn through active play and movement.
 
-Florence shows patience as she supports her friends. She watches them try and gives them encouragement. She is kind and positive, and her friends feel safe to give it a go. Florence looks very happy and proud as she helps others learn. She shows a strong sense of confidence and leadership.
+She is also growing her sense of belonging. Florence is building positive relationships with her friends and helping them feel included and confident to join in. This links to the Belonging strand of Te Whariki.
+
+From here, I will continue to support Florence to build her confidence and keep helping others during play.
 
 ---
 
