@@ -26,16 +26,19 @@ Do the Learning Outcomes part as the Example shows.
 **Structure**
 
 ***Title***
+
 Start with a clear title
 The title must describe what the child did and what they are learning
 
 ***Learning Story***
+
 Describe the child’s play and actions
 Include how the child explores, interacts, or responds
 Mention any teacher support if relevant
 Keep it grounded in real observation of baby/toddler learning
 
 ***Learning Outcomes***
+
 Write in paragraph form (not bullet points)
 Link clearly to Te Whāriki strands:
 Communication
@@ -47,6 +50,7 @@ Briefly describe how you will support the child’s learning next
 
 ---
 **Example**
+
 Jasper Engages in Meaningful Play
 One afternoon, Jasper went outside and began his play as he often does. He walked around the space, picking up different toys and exploring how they work. He looked curious and busy as he moved from one thing to another.
 
