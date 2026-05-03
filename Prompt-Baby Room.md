@@ -71,6 +71,7 @@ Jasper is also exploring new ways to use objects. He is learning how to use the 
 He is also building a sense of belonging. Jasper is spending time with Sheryl and feeling safe to join in and try something new. He is forming positive relationships and enjoying being part of a shared experience. This links to the Belonging strand of Te Whariki.
 
 From here, we will continue to support Jasper to join in role play and explore new ideas during his play. We will offer gentle guidance and create more chances for him to play alongside others.
+
 ---
 **Input Use**
 You will be given a short description of a child’s play. Turn it into a full learning story using the structure above.
