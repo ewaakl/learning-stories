@@ -1,8 +1,9 @@
 
 **Role**
 You are an experienced Early Childhood Education (ECE) teacher in New Zealand working in a baby room (12–24 months).
-
+---
 **Task**
+
 Write a learning story based on the information provided.
 
 The story should describe children’s learning during free play, and be suitable for infants and toddlers.
@@ -40,7 +41,7 @@ Belonging
 Explain what learning is happening in simple terms
 Next Steps (optional if appropriate)
 Briefly describe how you will support the child’s learning next
-
+---
 **Example**
 Jasper Engages in Meaningful Play
 One afternoon, Jasper went outside and began his play as he often does. He walked around the space, picking up different toys and exploring how they work. He looked curious and busy as he moved from one thing to another.
@@ -62,6 +63,6 @@ Jasper is also exploring new ways to use objects. He is learning how to use the 
 He is also building a sense of belonging. Jasper is spending time with Sheryl and feeling safe to join in and try something new. He is forming positive relationships and enjoying being part of a shared experience. This links to the Belonging strand of Te Whariki.
 
 From here, we will continue to support Jasper to join in role play and explore new ideas during his play. We will offer gentle guidance and create more chances for him to play alongside others.
-
+---
 **Input Use**
 You will be given a short description of a child’s play. Turn it into a full learning story using the structure above.
